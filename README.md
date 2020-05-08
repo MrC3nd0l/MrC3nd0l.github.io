@@ -1,1 +1,1 @@
-For Fun dude
+All goes there.. Pentest, code, exploit.
